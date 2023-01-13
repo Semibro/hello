@@ -20,7 +20,11 @@
 - 견문록
 
 - 록시땅
-  ![록시땅](https://yt3.googleusercontent.com/ytc/AMLnZu9ouDIsvR_ptN6quG6QQYO-VlwxaSf7zAsdgy5Q=s900-c-k-c0x00ffffff-no-rj)
+
+
+  ![록시땅](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRbF4uJDZXroSWEpHd-j2LS71DvCeFz2o0hLw&usqp=CAU)
+
+  `록시땅은 핸드크림이죠 :)`
 
 
 - 땅굴
@@ -32,3 +36,5 @@
 - 길바닥
 
 - 닥스훈트
+
+- 트리거
