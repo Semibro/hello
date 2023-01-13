@@ -58,4 +58,5 @@
 
 다들 취미가 어떻게 되시나요..?
     
-    A. 
+    A. [2분 6초를 봐주세요](https://www.youtube.com/watch?v=R1QER5Nn4m4)
+        ㄴ 넵!
